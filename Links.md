@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-05 08:25 IR
+- 🎬 [فصل2ج2.mp4](https://github.com/melodifyreza/MySandbox/raw/main/dl/%D9%81%D8%B5%D9%842%D8%AC2.mp4) `93.0MB`
+
+---
+
+
 ### 📅 2026-05-05 08:21 IR
 - 🗜️ [فصل2ج1 (1).mp4.zip](https://github.com/melodifyreza/MySandbox/raw/main/dl/%D9%81%D8%B5%D9%842%D8%AC1%20%281%29.mp4.zip) `6.0MB`
 
