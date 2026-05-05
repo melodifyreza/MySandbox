@@ -2,6 +2,20 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-05 10:17 IR
+- 🗜️ [استراتژی اسکلپ.mp4.zip](https://github.com/melodifyreza/MySandbox/raw/main/dl/%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%DA%98%DB%8C%20%D8%A7%D8%B3%DA%A9%D9%84%D9%BE.mp4.zip) `35.3MB`
+
+- 🗜️ [استراتژی اسکلپ.mp4.z01](https://github.com/melodifyreza/MySandbox/raw/main/dl/%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%DA%98%DB%8C%20%D8%A7%D8%B3%DA%A9%D9%84%D9%BE.mp4.z01) `95.0MB`
+
+- 🗜️ [استراتژی اسکلپ.mp4.z02](https://github.com/melodifyreza/MySandbox/raw/main/dl/%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%DA%98%DB%8C%20%D8%A7%D8%B3%DA%A9%D9%84%D9%BE.mp4.z02) `95.0MB`
+
+- 🗜️ [استراتژی اسکلپ.mp4.z03](https://github.com/melodifyreza/MySandbox/raw/main/dl/%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%DA%98%DB%8C%20%D8%A7%D8%B3%DA%A9%D9%84%D9%BE.mp4.z03) `95.0MB`
+
+- 🗜️ [استراتژی اسکلپ.mp4.zip](https://github.com/melodifyreza/MySandbox/raw/main/dl/%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%DA%98%DB%8C%20%D8%A7%D8%B3%DA%A9%D9%84%D9%BE.mp4.zip) `35.3MB`
+
+---
+
+
 ### 📅 2026-05-05 10:13 IR
 - 🗜️ [فصل4 ج5.mp4.zip](https://github.com/melodifyreza/MySandbox/raw/main/dl/%D9%81%D8%B5%D9%844%20%D8%AC5.mp4.zip) `94.3MB`
 
